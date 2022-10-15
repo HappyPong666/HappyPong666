@@ -1,10 +1,5 @@
-Hello. I am HappyPong666 (short: Kevin)
-I like playing games and coding
-I make malwares in my free time (HappyPong.exe,
-Windows10.exe clone,...)
-I like TGTF arts
-I play Minecraft
-I code with Batch, VBScript, HTML, JavaScript,...
+Hello. I am HappyPong666 (short: Kevin), I like playing games and coding, I make malwares in my free time (HappyPong.exe,
+Windows10.exe clone,...), I like TGTF arts, I play Minecraft, I code with Batch, VBScript, HTML, JavaScript,...
 
 IMPORTANT:
 If u spam, block or try to kill me then I will
