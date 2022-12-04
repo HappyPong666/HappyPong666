@@ -15,3 +15,7 @@ And if you want to contact me, then my email is
 lhuong.270767@gmail.com. I also have a website
 if you want to download my virus (NOT RECOMMENDED):
 https://lhuong270767.wixsite.com/happy
+aka
+bit.ly/happypong
+bit.ly/youthinkiamstupidhuh
+bit.ly/happypong666
