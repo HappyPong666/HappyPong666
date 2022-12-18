@@ -19,3 +19,5 @@ aka
 bit.ly/happypong
 bit.ly/youthinkiamstupidhuh
 bit.ly/happypong666
+
+Wait what why I get followers every day
